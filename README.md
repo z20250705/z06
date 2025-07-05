@@ -14,6 +14,6 @@
 平台还高度重视用户隐私，采用HTTPS加密技术保护你的信息安全。简洁易用的界面和强大的搜索功能，让你快速找到心仪的影片，适配手机、电脑等多设备，随时随地都能观看。
 选择这些平台，享受高质量、免费的日本AV观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/z20250705/z06 ）</span>
 
 
